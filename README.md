@@ -1,0 +1,1 @@
+Ödevin Ikinci Kismi biraz basit oldu ama anca bu kadarini yapabildim.
